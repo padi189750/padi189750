@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @padi189750
+- 👋 Hi, I’m Loren Russell (@padi189750)
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning to collaborate
 - 💞️ I’m looking to collaborate on how to reach me
